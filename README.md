@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @30farrellj
+- 👋 Hi, I’m jonathan
 - 👀 I’m interested in prodigy math 
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on? you will not know.
